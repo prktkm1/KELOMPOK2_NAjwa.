@@ -1,0 +1,1 @@
+# KELOMPOK2_NAjwa.
